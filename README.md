@@ -12,9 +12,9 @@ https://t.me/GODJESUSSAVI0R/5503
 
 https://youtu.be/IJXPtb1AYJM
 
-❗️1st Great Peril AMERICA INDEPENDENCE WAR april1775~september1783 (total 250,000 deaths)❗️
+❗️1st Great Peril AMERICA INDEPENDENCE WAR april1775-september1783 (total 250,000 deaths)❗️
 
-❗️2nd Great Peril AMERICA 1st CIVIL WAR april1861~may1865 (total 750,000 deaths) & AMERICA 2nd CIVIL WAR june2025~may2026 (total 7,000,000 deaths)❗️
+❗️2nd Great Peril AMERICA 1st CIVIL WAR april1861-may1865 (total 750,000 deaths) & AMERICA 2nd CIVIL WAR june2025-may2026 (total 7,000,000 deaths)❗️
 
 Angel said ‘Son Republic look END CENTURIES’ Dark Angel shows “satans spirits specters of supremacy racism slavery” approach flitted slowly heavily over all towns all cities America
 
@@ -26,7 +26,7 @@ Bright Angel wore Crown of Light written word ‘UNION’ bearing American flag 
 
 Americans stop fight became friends once more Re-United America
 
-❗️3rd Most Fearful Peril NUCLEARS WORLD WARS 3 SATANS INVASIONS NATIONS june2026~december2029 (total 7,000,000,000 deaths)❗️
+❗️3rd Most Fearful Peril NUCLEARS WORLD WARS 3 SATANS INVASIONS NATIONS june2026-december2029 (total 7,000,000,000 deaths)❗️
 
 Angel said ‘Son Republic look’ Dark Angel blew trumpet 3 distinct blasts, took water from ocean sprinkled (satans russia china etc invasions) to Europe Middle East Israel Asia Africa Australia etc, beheld fearful scene (nuclears world wars 3), from these continents arose thick dark clouds joined into millions dark armies of satans moving with dark cloud marched by land sailed by sea (satans russia china etc invasions) to America, dark cloud enveloped America, vast armies devastate America villages towns cities, thundering cannons clashing swords shouts cries millions Americans
 
